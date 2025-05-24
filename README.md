@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Daffaadrikal<br>👀 I’m interested in UI/UX Design<br>🌱 I’m currently freeelancing building websites and designing apps<br>💞️ I’m looking to collaborate on UI/UX Designs for applications<br>📫 How to reach me Daffaadrikal@gmail.com / LinkedIn: Daffa Adrikal
+👋 Hi, I’m @Daffaadrikal<br>👀 I’m interested in UI/UX Design<br>🌱 I’m currently freeelancing building websites and designing apps<br>💞️ I’m looking to collaborate on UI/UX Designs for applications
 
 
 ## 🌐 Socials:
